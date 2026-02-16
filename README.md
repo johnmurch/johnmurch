@@ -7,7 +7,7 @@
 🍭 **[johnmurch.com](https://www.johnmurch.com)** (Personal Site) – Archive Blog Posts
 
 
-💼 **[nomadthinking.com](https://www.nomadthinking.com)** (Consulting) – Limited Avalible for hire
+💼 **[nomadthinking.com](https://www.nomadthinking.com)** (Consulting) – Limited Available for hire
 
 ## Current Projects
 
